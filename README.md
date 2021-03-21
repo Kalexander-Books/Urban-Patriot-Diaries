@@ -8,6 +8,6 @@ Rural, suburban way of life is a cop-out... city/urban life's the thick of it al
 
 Hence: URBAN PATRIOT.
 
-The only story more important than tales of truth's, are stories of explanations behind the lies; that the Red White and Blue, of white folk, don't need fixing. Becasue it does need fixing. And I'm here to ask why, now that it's clear. Through literary fiction/non-fiction stories.
+The only story more important than tales of truth's, are stories of explanations behind the lies; that the Red White and Blue, of white folk, don't need fixing. Becasue it does need fixing. And I'm here to ask why, now that it's clear. Through literary fiction/non-fiction story-diaries of the Black experience.
 
 It's necessary to make this change clear to avoid confusion about this site project.
